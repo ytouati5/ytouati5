@@ -6,7 +6,7 @@
 Here are some ideas to get you started:
 
 - 🌱 I’m currently a Master student in Chemistry at EPFL :squirel: 
-- 📫 How to reach me: yasmine.touatiepfl.ch
+- 📫 How to reach me: yasmine.touati@epfl.ch
 - 😄 Pronouns: She/Her
 
 -->
