@@ -5,4 +5,3 @@
 - 🌱 I’m currently learning Programming 
 - 📫 How to reach me: yasmine.touati@epfl.ch
 - 😄 Pronouns: Her/She
--->
